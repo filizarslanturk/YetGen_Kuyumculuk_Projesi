@@ -1,0 +1,1 @@
+# YetGen_Kuyumculuk_Projesi
